@@ -1,6 +1,6 @@
 ## APPSC Group 2 Notification :: 2025 updated:
 
-The government of andhra pradesh has released latest 
+The government of andhra pradesh has released latest update for the post of APPSC Group 2 Notification, 
 
 <!--
 
