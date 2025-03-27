@@ -1,4 +1,6 @@
-## Hi there 👋
+## APPSC Group 2 Notification :: 2025 updated:
+
+The government of andhra pradesh has released latest 
 
 <!--
 
