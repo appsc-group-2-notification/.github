@@ -4,7 +4,8 @@ The government of andhra pradesh has released latest update for the post of APPS
 
 ### Andhra pradesh public service Commission
 
-The APPSE -> Andhra Pradesh Public Service commission is Government organization responsible for conducting all competative examinations and filling Governemnt Job vacancies in Andhra Pradesh. This commission release latest notification for group I, II, III, and IV. In this currend update we have discussed about Group II. Group - II posts/jobs are classified as white color and state administration jobs. 
+The APPSC -> Andhra Pradesh Public Service commission is Government organization responsible for conducting all competative examinations and filling Governemnt Job vacancies in Andhra Pradesh. This commission release latest notification for group I, II, III, and IV. In this currend update we have discussed about Group II. Group - II posts/jobs are classified as white color and state administration jobs. 
+
 
 <!--
 
