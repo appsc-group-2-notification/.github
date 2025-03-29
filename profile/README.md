@@ -27,6 +27,25 @@ Group II contains executive and non executive posts provided under government of
 ### APPSC Group-2 Notification for 8977 posts released
 The appsc group 2 notification for 2025 has released and announced about 897 vacancies for various posts. If you are intrested in applyinf please check official advt PDF for all terms and condtions, eligibility and important dates. 
 
+## APPSC Group 2 Mains exam not postponed, Notice on Social media is fake
+
+Recently, there are many fake posts on social media phlatforms about appsc group 2 mains exam being postponed, but APPSC officially announced that the exam will be conducted as per the schedule and intimated candaites not to belive in false news. Candidates are kindly requeste to follow official sources only.
+
+## EXAM Calender
+
+The APPSC Examination Calender is now avaliable on the official website. It provides complete details about upcoming recrutiment exams, including tentative exam dates and schedules for group 2 posts. 
+
+## APPSC Exam Results 
+
+Candiates can check their APPSC GRoup 2 results on the official website by entering their roll number and date of birth, provided in the hall ticket. Seperate merit list and cut Off marks are published on ap.gov.in recruitment section. 
+
+## Answer Keys to papers
+
+APPSC releases answer keys for prelims and mains exams after completion of examination. Candidates can download APPSC group 2 answer key from he official website and can raise objection with in given time frame. 
+
+## APPSC Group-2 notification-2025.pdf
+
+Candidates who are looking for current notification about APPSC Group 2, need to check government website regulary, or book mark this page, because this page is frequently updated about APPSC, and very useful for Official notification updates. 
 <!--
 
 **Here are some ideas to get you started:**
