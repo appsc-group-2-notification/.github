@@ -16,7 +16,7 @@ Group II contains executive and non executive posts provided under government of
 
 | Feature | Details |
 | -------- | ------- |
-| Conducting Body | Andhra pradesh Public Service Commission (APPSC) GOVT OF Andhra Pradesh |
+| Conducting Body ap.gov.in | Andhra pradesh Public Service Commission (APPSC) GOVT OF Andhra Pradesh Purpose: Recruitment |
 | Exam Level | State Government Job |
 | Mode of Exam | Offline (OMR-Based) |
 | Stage of Exam | Prelimis, Mains, Interview (if applicable) |
