@@ -21,7 +21,7 @@ Group II contains executive and non executive posts provided under government of
 | Exam Level | State Government Job |
 | Mode of Exam | Offline (OMR-Based) |
 | Stage of Exam | Prelimis, Mains, Interview (if applicable) |
-| Official website | [psc.ap.gov.in](http://psc.ap.gov.in/) |
+| APPLY NOW  | [psc.ap.gov.in](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2Fp%2Fap-grama-sachivalayam-notification-2025.html&sa=D&sntz=1&usg=AOvVaw0ZKqKGmYS3efU7VU_1l8y1) |
 
 ## notifications 
 ### APPSC Group-2 Notification for 8977 posts released
@@ -68,8 +68,7 @@ Currently APPSC has not released 2025 notification, and will be avaliable soon. 
 
 The appsc Group 2 notificaiton is a golden opportunity for candiates looking for government jobs in Andhra pradesh. Stay updated with the lates announcements, exams and schedules. Study effectively to secure your dream job with Ap Government. For all updates check this page or use psc.ap.gov.in web page.
 
-
-
+last updated on: updated recently 05-04-2025
 
 <!--
 
