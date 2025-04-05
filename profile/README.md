@@ -8,7 +8,7 @@ The government of andhra pradesh has released latest update for the post of APPS
 
 The APPSC -> Andhra Pradesh Public Service commission is Government organization responsible for conducting all competative examinations and filling Governemnt Job vacancies in Andhra Pradesh. This commission release latest notification for group I, II, III, and IV. In this currend update we have discussed about Group II. Group - II posts/jobs are classified as white color and state administration jobs. You can also apply for [AP Grama Sachivalayam jobs from here ](https://github.com/AP-Grama-Sachivalayam-Apply-Online)
 
-## <center>APPLY NOW</center>
+## APPLY NOW > [LINK](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2Fp%2Fap-grama-sachivalayam-notification-2025.html&sa=D&sntz=1&usg=AOvVaw0ZKqKGmYS3efU7VU_1l8y1) 
 
 ## Group - 2 Information:
 
