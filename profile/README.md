@@ -69,7 +69,9 @@ Currently APPSC has not released 2025 notification, and will be avaliable soon. 
 
 The appsc Group 2 notificaiton is a golden opportunity for candiates looking for government jobs in Andhra pradesh. Stay updated with the lates announcements, exams and schedules. Study effectively to secure your dream job with Ap Government. For all updates check this page or use psc.ap.gov.in web page.
 
-last updated on: updated recently 05-04-2025
+** last updated on: updated recently 23-06-2025 **
+
+Here is the latest update about andhra pradesh government scheme, which provides status updates about annadata sukhibhava > https://github.com/annadata-sukhibhava follow this for more information. 
 
 <!--
 
