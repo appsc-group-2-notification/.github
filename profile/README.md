@@ -22,7 +22,7 @@ Group II contains executive and non executive posts provided under government of
 | Exam Level | State Government Job |
 | Mode of Exam | Offline (OMR-Based) |
 | Stage of Exam | Prelimis, Mains, Interview (if applicable) |
-| APPLY NOW  | [psc.ap.gov.in](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2Fp%2Fap-grama-sachivalayam-notification-2025.html&sa=D&sntz=1&usg=AOvVaw0ZKqKGmYS3efU7VU_1l8y1) |
+| APPLY NOW  | [psc.ap.gov.in](https://government-job.site) |
 
 ## notifications 
 ### APPSC Group-2 Notification for 8977 posts released
